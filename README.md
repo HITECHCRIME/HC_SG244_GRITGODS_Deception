@@ -40,6 +40,10 @@ All i had
 Intentions
 Were unknown
 
+Life is betraying me
+
+All those who were close, i thought they cared but that was just me
+
 [mothnode]
 x
 x
