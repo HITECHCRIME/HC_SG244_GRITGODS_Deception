@@ -1,6 +1,6 @@
 [cover code] ![](57175019_319474918741616_8502199518755923887_n.jpg)
 
-# ARTIST_ TITLE
+# Killlxv x MOTHNODE_ Deception
 
 **Listen now:** 
 
@@ -22,7 +22,47 @@ Description.
 ## Lyrics
 
 ```
+[killlxv]
 
+I don't know you
+Anymore you're
+Just a scar
+All i have is pain
+You see me fall apart
+
+You would
+Stab my back
+Deception
+Is all you've known
+
+Taking 
+All i had
+Intentions
+Were unknown
+
+[mothnode]
+x
+x
+x
+x
+x
+x
+x
+x
+x
+x
+x
+
+[killlxv]
+You would
+Stab my back
+Deception
+Is all you've known
+
+Taking 
+All i had
+Intentions
+Were unknown
 
 ```
 
