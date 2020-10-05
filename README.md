@@ -40,12 +40,25 @@ All i had
 Intentions
 Were unknown
 
-Life is betraying me
 
-All those who were close, i thought they cared but that was just me
+
+ 
 
 [mothnode]
-x
+all those who were close
+all of them lot
+still thought they cared for me 
+but there was only doubt
+never give into fear 
+all i truly cared for 
+was foolish sobriety of the lost
+
+Life in that betrayal, still in doubts on my own accord
+from my volition it's a mission of the cold
+make you pay for what you've done, rotten to the core of my own perdition
+now i'm tying the knot 
+
+making right for what was wrong
 x
 x
 x
